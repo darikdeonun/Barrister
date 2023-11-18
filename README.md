@@ -1,2 +1,2 @@
 # Barrister
-Barrister
+The only difference is, lawyers usually represent clients in the magistrate courts (or known as the lower courts). As for barristers, they usually represent clients in the higher courts. They are briefed or instructed by lawyers to properly represent the client in court. A barrister is a lawyer who is specialized in representing clients in the Courts. They have an audience in all Courts. A barrister and QC are both [barrister](https://www.divorcelawyerhouston.net/). However, a QC barrister is more senior and is the highest level of the barrister profession. A QC is also appointed by invitation from the Queen following a rigorous application process.
